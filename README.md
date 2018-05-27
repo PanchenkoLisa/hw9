@@ -23,7 +23,7 @@
 По очереди вставляя пробелы после необходимых знаков препинания.
 ![](https://github.com/PanchenkoLisa/hw9/blob/master/BUFQYhl6Ty4.jpg?raw=true)
 ![](https://github.com/PanchenkoLisa/hw9/blob/master/RZ6B58aXnxw.jpg?raw=true)
-![]()
+![](https://github.com/PanchenkoLisa/hw9/blob/master/rWtjeQGs8Wg.jpg?raw=true)
 ![]()
 ![]()
 ![]()
