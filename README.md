@@ -27,6 +27,6 @@
 ![](https://github.com/PanchenkoLisa/hw9/blob/master/mkqIC2mdLNQ.jpg?raw=true)
 ![](https://github.com/PanchenkoLisa/hw9/blob/master/FyAh7a6jSSo.jpg?raw=true)
 ![](https://github.com/PanchenkoLisa/hw9/blob/master/Ppy-SZVyFGc.jpg?raw=true)
-![]()
+![](https://github.com/PanchenkoLisa/hw9/blob/master/YXsIRoJ85DM.jpg?raw=true)
 
 Итоговый файл я прикрепила в репозиторий.
